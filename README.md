@@ -1,0 +1,1 @@
+Enthusiast, critical and curious.
